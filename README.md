@@ -18,6 +18,8 @@ If you have an interest in learning more about me, feel free to ask me about my 
 
 As aforementioned, my direct email is currently hophum@proton.me, my Wire and Wickr usernames are both "infidelis", and my Twitter & other social media are in the process of being restarted. If you need to reach me but do not wish to use these mediums, I am potentially willing to reach out to you elsewhere, but those means of connection must have at least some modicum of security, anonymity, and "burnability".
   I make it a priority to burn all of my internet representations and start them over fresh every so often. I am currently in the process of doing this with my social media, so any new accounts I link here will appear as unproven, unverified accounts. However, my last two Twitter accounts had between 35- and 50-thousand followers, my last instagram had a little more than 5,000 followers, and I do not use Facebook currently. Also, given the recent activities at Twitter I have decided to search for a practical alternative for the time being. I am debating on whether to go with Hive, Mastadon, CounterSocial, and a number of others. Wherever I am accessible directly will be added here as the are created.
+    Update #1: I can now also be found on CounterSocial and Hive at username "infidelis" (same username as elsewhere)
+  
 
 I respect and understand the strength shown by those within the LGBTQIA+ realm of society. As such I appreciate those who are willing to put forth their pronouns in a show of support of trans persons. My personal pronouns are currently "he/him".
 
